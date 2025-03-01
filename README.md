@@ -1,4 +1,4 @@
-## Hi there 👋
+## About Me 👋
 - A motivated and details-oriented fresher with a strong desire to contribute to a dynamic organization. 
 - Possesses excellent problem-solving skills, adaptability, and a passion for continuous learning.
 - Eager to apply academic knowledge in a professional environment while growing and evolving with new challenges.
